@@ -1,2 +1,2 @@
-# OG-TEXTURES-minecraft-
-Og textures before 1.14
+#DO NOT STEAL
+#This is a minecraft texure pack that brings back og texures
